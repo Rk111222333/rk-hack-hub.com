@@ -1,2 +1,2 @@
-# rk-hack-hub.com
+# rk.com
 free fire hack
